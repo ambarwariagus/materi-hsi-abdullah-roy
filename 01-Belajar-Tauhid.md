@@ -1,4 +1,4 @@
-# Materi Belajar Tauhid
+# Belajar Tauhid
 
 Disusun oleh: Agus Ambarwari, S.Pd., M.Kom.
 
