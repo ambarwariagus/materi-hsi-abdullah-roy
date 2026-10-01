@@ -1,6 +1,6 @@
 # Mengenal Rasūlullāh ﷺ
 
-Disusun oleh: Agus Ambarwari, S.Pd., M.Kom.
+Disusun: Agus Ambarwari, S.Pd., M.Kom.
 
 Sumber: *Halaqah Silsilah ‘Ilmiyyah Abdullah Roy – Mengenal Rasūlullāh ﷺ*
 
